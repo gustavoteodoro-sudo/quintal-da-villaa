@@ -55,3 +55,12 @@ quintal-da-vila/
 
 - **Endereço:** Rua Rishin Matsuda, 712 — São Paulo, SP — CEP 04371-000
 - **WhatsApp:** (11) 95425-8578
+
+- 📍 Nome | RA
+- Gustavo Posso Fernandes | RA: 2526101109 Giovanna Rhormens Santos | RA:426108180 Maria Isabel Afonso | RA:426106277 Amélia Gertride Kiala | RA:426106184 Lulia Lima Lopes | RA:426100080 Lucas Carvalho de Lira |RA: 426103831 Letícia de Paulo Silva |RA: 2526102352 Gustavo Teodoro do Nascimento | RA: 426103039
+
+- QRCODE DO VIDEO : <img width="137" height="138" alt="598205313-04878631-f743-4f59-9e64-7c94dec43d0c" src="https://github.com/user-attachments/assets/2bc36674-0f3e-4307-911c-9593906db33a" />
+
+- QR DO CARDAPIO : <img width="93" height="88" alt="598206819-62a3add2-68f8-4366-ac11-875fa811d1f9" src="https://github.com/user-attachments/assets/be13ec94-326e-4f6d-b6df-a642e189cafb" />
+
+
